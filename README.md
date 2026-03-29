@@ -1,0 +1,55 @@
+# M!LK – Love Drive
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+モーニングアラーム
+シーツ蹴飛ばして
+さぁ 君の好きなシャツに袖を通して
+髪を整えて
+歯ブラシ片手 ミラーチェック
+愛する君のもとへ
+向かうよ 僕のオープンカーで
+(Oh) 胸のBPM キャパオーバー
+(Oh) 聞こえるかい?Ah 張り裂けそう
+ただ君だけが
+僕の Only one
+目が合う瞬間
+ハートが Overdrive
+もう待てない Love! Love! Love!
+2人だけの Love! Love! Love!
+Just you＆I
+Ay-yo
+サングラス越し
+光る天使の笑み
+ハンドル握り
+唸りあげるエンジン
+でも急にモヤモヤ
+君は携帯を見つめている
+あれ? 僕と話してくれない? Oh
+あれ? 君は僕に夢中じゃない? Oh
+チラッと見た画面
+あの日撮った2人のツーショット
+(Oh) ウトウト 僕の肩で寝る君
+(Oh) 甘い香り Ah クラクラ
+ただ君だけが
+僕の Only one
+目が合う瞬間
+ハートが Overdrive
+もう待てない Love! Love! Love!
+2人だけの Love! Love! Love!
+Just you＆I
+もう待てない Love! Love! Love!
+2人だけの Love! Love! Love!
+ただ君だけが
+僕の Only one
+目が合う瞬間
+ハートが Overdrive
+巡り会えた
+僕の Precious one
+今この瞬間
+始まる Love Drive
+もう待てない Love! Love! Love!
+2人だけの Love! Love! Love!
+Just you＆I
+```
